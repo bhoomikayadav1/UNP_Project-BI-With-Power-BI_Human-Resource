@@ -7,4 +7,4 @@ POWER BI project as a part of internship with UNITED NETWORK OF PROFESSIONALS ke
 PBIx File:-
 https://drive.google.com/file/d/1Nm-mkzXoRzvcBwdMzGFsAa6NWIgo5xcW/view?usp=drivesdk
 Canva link
--https://drive.google.com/file/d/1ErF7qS-jSgw1oYlo79ViSwc321pxcjKI/view?usp=drivesdk
+https://www.canva.com/design/DAF4K9w_nY8/-fsYWMh6zFg0U_icPjLw4w/edit?utm_content=DAF4K9w_nY8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
